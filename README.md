@@ -1,4 +1,3 @@
-## First person to send fees to 8f3adJVpgjoBYrr6yfk2HZ78UzuFR7NCeDdB1S3DQU4g with ticker John, I will endorse it, now leave me alone nerds 👋
 
 
 

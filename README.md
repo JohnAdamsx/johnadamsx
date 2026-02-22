@@ -1,5 +1,5 @@
 
-
+Donations are appericiated :) - BWybJL1hMj8f2mMrhcWRDvBdRBHAcE38qRD4dcGm6wUk
 
 <!--
 **JohnAdamsx/johnadamsx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
